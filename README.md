@@ -1,10 +1,10 @@
 - 👋 Hi, I’m Amanuel
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning software development
-- 💞️ I’m looking to collaborate on VRA project
-- 📫 How to reach me 
-- 😄 Pronouns: He/Hymn
-- ⚡ Fun fact: is an oxymoron
+- 👀 I’m interested in the good, the beautiful, and the true.
+- 🌱 I’m currently learning life.
+- 💞️ I’m looking to collaborate on anything that glorifies God.
+- 📫 How to reach me: easy, I am not tall. 
+- 😄 Pronouns: He/Hymn.
+- ⚡ Fun fact: After thousands of years of civilization we just saw the need for a pronoun in our bios.  
 
 <!---
 amanuel22316708/amanuel22316708 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
