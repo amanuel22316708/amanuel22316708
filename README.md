@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Amanuel
+- 👋 Hi, I’m Amanuel Galema
 - 👀 I’m interested in the good, the beautiful, and the true.
 - 🌱 I’m currently learning life.
 - 💞️ I’m looking to collaborate on anything that glorifies God.
