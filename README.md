@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning life.
 - 💞️ I’m looking to collaborate on anything that glorifies God.
 - 📫 How to reach me: easy, I am not tall. 
-- 😄 Pronouns: He/Hymn.
+- 😄 Pronouns: I/Hymn.
 - ⚡ Fun fact: After thousands of years of civilization we just saw the need for a pronoun in our bios.  
 
 <!---
