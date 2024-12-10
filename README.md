@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Amanuel.
-- 👀 I’m interested in the good, the beautiful, and the true.
+- 👀 I’m interested in the good, the true, and the beautiful.
 - 🌱 I’m currently learning life.
 - 💞️ I’m looking to collaborate on anything that glorifies God.
 - 📫 How to reach me: easy, I am not tall. 
